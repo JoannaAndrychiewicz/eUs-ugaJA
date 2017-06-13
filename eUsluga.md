@@ -1,4 +1,4 @@
-Elektroniczne Usługi Publiczne
+Elektroniczne Usługi
 
 | plik | kto | termin |
 |:-:|:-:|-:|
