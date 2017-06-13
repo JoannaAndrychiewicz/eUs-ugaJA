@@ -1,4 +1,4 @@
-Elektroniczne Usługi Publiczne Asia
+Elektroniczne Usługi Publiczne 
 
 | plik | kto | termin |
 |:-:|:-:|-:|
